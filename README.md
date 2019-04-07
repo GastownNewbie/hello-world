@@ -1,2 +1,3 @@
 # hello-world
 Just another repository
+There's nothing I love more than travelling to new places, meeting people and living in the moment. My last adventure was backpacking through southern Inda. Travelling alone means that I meet so many people, and do what I want to do, even on the spur of the moment! I've visted an elephant sanctuary, stayed in an Ashram, danced until 5am on New Year's day, sped home on the back of a scooter in the moonlight and even been stopped by the police. All part of the adventures! I usually choose warm places and make my getaway during the winter months. In the past few years, I've visited:
